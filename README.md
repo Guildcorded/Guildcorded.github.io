@@ -1,1 +1,1 @@
-# Guildcorded.github.io
+# Guildcordz.github.io
